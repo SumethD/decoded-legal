@@ -68,4 +68,4 @@ These Terms are governed by the laws of the Democratic Socialist Republic of Sri
 
 For questions about these Terms:
 
-- **Email:** sumethlokuliyana1@gmail.com
+- **Email:** sumethlokuliyana76@gmail.com
