@@ -65,7 +65,7 @@ We may update this policy from time to time. Changes will be posted here with an
 ## 10. Contact
 
 For privacy questions or data requests:
-- Email: privacy@decoded.app
+- Email: sumethlokuliyana1@gmail.com
 
 ---
 
