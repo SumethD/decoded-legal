@@ -90,7 +90,7 @@ We may update this policy from time to time. Material changes will be communicat
 
 For privacy questions, data access requests, or to report a concern:
 
-- **Email:** sumethlokuliyana1@gmail.com
+- **Email:** sumethlokuliyana76@gmail.com
 
 ---
 
