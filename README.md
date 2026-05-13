@@ -9,4 +9,4 @@ Privacy policy and terms of service for the **Decoded** mobile app — a barcode
 
 ## Contact
 
-For privacy or legal questions: sumethlokuliyana1@gmail.com
+For privacy or legal questions: sumethlokuliyana76@gmail.com
